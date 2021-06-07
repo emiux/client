@@ -1,4 +1,4 @@
-Nigga brrr brrrr lezzzgooo 1!1!1
+brrr brrrr lezzzgooo 1!1!1
 Dabady car 
 ow ye
 skrt skrt
